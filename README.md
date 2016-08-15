@@ -1,2 +1,5 @@
 # hello-world
-just another repository 
+
+hi humans 
+
+i love to play pokemon, watch tv series and read books and get into the deep of her heart 
